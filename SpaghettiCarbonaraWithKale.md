@@ -1,4 +1,4 @@
-# Spaghetti alla Carbonara with Kale Greens
+# One Pot Spaghetti alla Carbonara with Kale Greens
 
 **Prep Time:** 10 minutes
 
