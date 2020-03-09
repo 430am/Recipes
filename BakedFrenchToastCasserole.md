@@ -1,4 +1,4 @@
-# One Pot Cajun Pasta Alfredo with Sausage and Chicken
+# Baked French Toast Casserole
 
 **Prep Time:** 20 minutes
 
