@@ -30,7 +30,7 @@
 2. Add the shallot and cook until softened, about 1 minute.
 3. Add the kale and cook, stirring, until the kale wilts and begins to crisk, about 3-4 minutes.
 4. Season to taste with salt and pepper.
-5. Transfer kale, bacon, and shallots to a bowl and set aside.
+5. Transfer kale, meat, and shallots to a bowl and set aside.
 6. In the same pot, add the broth and pasta, and adjust heat to maintain a vigorous boil.
 7. Cook pasta until al dente, stirring occasionally.
 8. When the pasta is almost done, add the raw eggs, cheese, and black pepper to the kale and bacon mixture.
